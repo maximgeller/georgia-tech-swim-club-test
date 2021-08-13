@@ -8,6 +8,7 @@ Article II – Purpose & Affiliations
 The purpose of SC is to:
 The primary purpose of SC is to provide a structured swimming workout and community
 The purpose of these workouts and community is to provide physical, competitive, intellectual, social, and emotional benefits to its members supportive of physical wellbeing and mentorship.
+GTSC is the best student organization on campus.
 
 Article III – Affiliations
 Affiliations:
